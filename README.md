@@ -1,6 +1,6 @@
--Hi ! I'm @SBEKUONE. I’m interested by programming adn business.
+-Hi ! I'm @SBEKUONE. I’m interested by programming and business meeting.
 I’m currently learning how to built make more than what I done last time; 
-So I’m looking to collaborate on with evry body which intererest to create a business app
+So I’m looking for collaborating on any project
 This is my WhatsApp Number : +226 54 87 96 75 | My mail : sbekuonesome@gmail.com
 Thank You !
 
